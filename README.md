@@ -1,7 +1,7 @@
 ![Hello](https://github.com/Annuradhaa/My-Intro/blob/main/Anuradha.png?raw=true)
 
 # Introduction 🚀
-**This is Anuradha Chaurasia 🙋 from NSEC (cse) 1st year**
+**This is Anuradha Chaurasia 🙋 from NSEC  3rd year**
 
 ## ✒️Basic Details 
 **Name**- *Anuradha Chaurasia* 🌟
